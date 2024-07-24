@@ -1,0 +1,1 @@
+Fashion Shop has always used highest quality fabrics and product engineering techniques that give the user the unique comfort and tactile feel which no other brand offers. This is clubbed with the use of colors 
